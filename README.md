@@ -8,6 +8,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with breaking technical concepts
 - 💬 Ask me about my learning journey
 - 📫 How to reach me:https://twitter.com/Ayoolaleye2
-- 😄 Pronouns: she / her
-- ⚡ Fun fact:i love jesus
+- 😄 Pronouns: She / Her
+- ⚡ Fun fact:I Love Jesus
 
